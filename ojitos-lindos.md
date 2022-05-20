@@ -1,4 +1,4 @@
-# Letra de "Ojitos Lindos"
+# Letra de "Ojitos Lindos" Christopher Tineo
 
 **Bad Bunny Ft. Bomba Estéreo**
 
